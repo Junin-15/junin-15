@@ -14,4 +14,4 @@ Meu nome é junin-15
 
 
 
-https://media1.tenor.com/m/r84E376vgWoAAAAd/dokkan-battle-future-saga.gif
+!{}(https://media1.tenor.com/m/r84E376vgWoAAAAd/dokkan-battle-future-saga.gif)
